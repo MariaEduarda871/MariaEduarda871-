@@ -13,4 +13,4 @@ Olá, me chamo Maria Eduarda 💖
 
 
 
-   ![](https://tenor.com/pt-BR/view/teletubbies-tutu-teletubbies-dance-dipsy-teletubbies-gif-24458743)
+   ![](https://media1.tenor.com/m/ZDjoENPJVxsAAAAd/teletubbies-tutu.gif)
